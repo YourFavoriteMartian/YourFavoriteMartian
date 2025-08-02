@@ -16,4 +16,9 @@
 
   -  Bandom fans! (**MCR**, PTV, FOB, PATD, SWS, **YFM**, **THE CURE** [AND MORE!!](https://rentry.co/went)
   -  If you like the same [shows/movies](https://rentry.co/limpy) as me! 
-  
+
+  </details>
+   <details>
+      <summary>DNI</summary>
+   Basic dni, darkshippers, BOTDF fans/supporters, MSI fans/supporters, True crime community, Sh/Ed twt, trumpies, zionists, TCCOAAL fans/supporters, Alfred's Playhouse fans/supporters, Lucifer valentine fans/supporters, Nazis, Real life gore enjoyers, Loli/Shotacons, Rcta people (race change to another), Zoos/Pedos/Necros and their supporters, Anti good faith identites (Mspec gays/lesbians, lesboys, gaybian, etc - Please do your research before hating on these identites, heres a [rentry](https://rentry.co/lesboyreclaim) explaining lesboys (.)
+   </details>
