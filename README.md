@@ -20,5 +20,5 @@
   </details>
    <details>
       <summary>DNI</summary>
-   Basic dni, darkshippers, BOTDF fans/supporters, MSI fans/supporters, True crime community, Sh/Ed twt, trumpies, zionists, TCCOAAL fans/supporters, Alfred's Playhouse fans/supporters, Lucifer valentine fans/supporters, Nazis, Real life gore enjoyers, Loli/Shotacons, Rcta people (race change to another), Zoos/Pedos/Necros and their supporters, If you are against Turigirls, lesboys, gaybian - Please do your research before hating on these identites, heres a [rentry](https://rentry.co/lesboyreclaim) explaining lesboys (.)
+   Basic dni, darkshippers, BOTDF fans/supporters, MSI fans/supporters, True crime community, Sh/Ed twt, trumpies, zionists, TCCOAAL fans/supporters, Alfred's Playhouse fans/supporters, Lucifer valentine fans/supporters, Nazis, Real life gore enjoyers, Loli/Shotacons, Rcta people (race change to another), Zoos/Pedos/Necros and their supporters, TERFs, Exclusionists
    </details>
