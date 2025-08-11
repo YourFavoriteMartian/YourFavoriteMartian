@@ -15,7 +15,7 @@
   <summary>Int</summary>
 
   -  Bandom fans! (**MCR**, PTV, FOB, PATD, SWS, **YFM**, **THE CURE** [AND MORE!!](https://rentry.co/went)
-  -  If you like the same [shows/movies](https://rentry.co/limpy) as me! 
+  -  If you like the same [shows/movies](https://rentry.co/bellarina) as me! 
 
   </details>
    <details>
