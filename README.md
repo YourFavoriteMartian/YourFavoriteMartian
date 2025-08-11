@@ -20,5 +20,5 @@
   </details>
    <details>
       <summary>DNI</summary>
-   Basic dni, darkshippers, BOTDF fans/supporters, MSI fans/supporters, True crime community, Sh/Ed twt, trumpies, zionists, TCCOAAL fans/supporters, Alfred's Playhouse fans/supporters, Lucifer valentine fans/supporters, Nazis, Real life gore enjoyers, Loli/Shotacons, Rcta people (race change to another), Zoos/Pedos/Necros and their supporters, TERFs, Exclusionists
+   Basic dni, darkshippers, BOTDF fans/supporters, MSI fans/supporters(if ur already a friend and dont support them but still a fan then its Ok as long as u pirate them or something BUT Im still iffy about MSI just dont mention it around me Tanks + if ur a friend and I see u in a jimmy urine skin/find out that you support MSI Im unfriending you IM SO TIRED OF ACTING LIKE IM OKAY WITH IT I AM NOT OKAY WITH IT.), True crime community, Sh/Ed twt, trumpies, zionists, TCCOAAL fans/supporters, Alfred's Playhouse fans/supporters, Lucifer valentine fans/supporters, Nazis, Real life gore enjoyers, Loli/Shotacons, Rcta people (race change to another), Zoos/Pedos/Necros and their supporters, TERFs, Exclusionists
    </details>
