@@ -20,5 +20,5 @@
   </details>
    <details>
       <summary>DNI</summary>
-   Basic dni, darkshippers, BOTDF fans/supporters, MSI supporters and fan that make it their whole personality. and BOTDF fans/supporters, True crime community, Sh/Ed twt, trumpies, zionists, TCCOAAL fans/supporters, Alfred's Playhouse fans/supporters, Lucifer valentine fans/supporters, Nazis, Real life gore enjoyers, Loli/Shotacons, transrace, transage, transabled, transharmful, transmed, Zoos/Pedos/Necros and their supporters, TERFs, Exclusionists
+   Basic dni, darkshippers, BOTDF fans/supporters, MSI supporters and fans that make it their whole personality. and BOTDF fans/supporters, True crime community, Sh/Ed twt, trumpies, zionists, TCCOAAL fans/supporters, Alfred's Playhouse fans/supporters, Lucifer valentine fans/supporters, Nazis, Real life gore enjoyers, Loli/Shotacons, transrace, transage, transabled, transharmful, transmed, Zoos/Pedos/Necros and their supporters, TERFs, Exclusionists
    </details>
